@@ -11,4 +11,4 @@
 
 ---
 
-> "Quando se olha muito tempo para um abismo, o abismo olha de volta para você." ~ Stay Hard
+> "Quando se olha muito tempo para um abismo, o abismo olha de volta para você." ~ Nietzsche
